@@ -6,5 +6,5 @@ Willowed is a Stuttgart-based electronic music producer blending ambient, downte
 
 "Holding Pattern" is a downtempo electronic track built around evolving synthesizer textures, deep bass and minimal rhythms. The track explores the feeling of being stuck in a loop.
 
-Listen on Bandcamp:
-https://willowedmusic.bandcamp.com/track/holding-pattern
+Listen to "Holding Pattern" by Willowed on Bandcamp:
+[Holding Pattern – Willowed](https://willowedmusic.bandcamp.com/track/holding-pattern)
